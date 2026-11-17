@@ -7,7 +7,7 @@ John Isaac Alonso Gonzalez
 -
 Victor Chaves Garcia
 -
-Yulian Andrey Marin Vasquez
+Yulian Andrey Marín Vasquez
 -
 Orlando Andres Moreland Solorzano
 -
